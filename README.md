@@ -1,11 +1,14 @@
 
-<p align="center"> My name is Polaris! |Check my Pro page for more names|
+<p align="center"> My name is Temple/Gunther
+  
+<p align="center">|Check my Pro page for more names|
 
 <p align="center"> Comissioner and Artist . Yet I post slow on Tumblr.
 
 <p align="center"> For Pony Town: Please do not copy my skins unless you are a close friend you can take ispo but not fully copy unless you've asked me.
 
-<p align="center">Pronouns: He-it-Hy
+<p align="center">Pronouns: He-it-They
+
 <p align="center">───────────────────────────────────────────────────────────────────────────────
 
 <p align="center">Interact with cuation please , I enjoy making friends.
