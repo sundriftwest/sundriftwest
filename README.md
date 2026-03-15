@@ -5,10 +5,6 @@
 
 ⋮ ⌗ ┆ Mentions .
 
-♯ @venomousviperr
+♯ @venomousviperr - ♯ @Machinimatic - ♯ @sillydude01
 
-♯ @sillydude01
-
-♯ @Machinimatic 
-
-These are the most freakin' coolest people around !! Pleaseplease go check them out, you can find their links in my thingy beside this!
+These are the most freakin' coolest people around !! Pleaseplease go check them out, you can find their links to their git in my thingy beside this!
