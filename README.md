@@ -1,7 +1,21 @@
-⋮ ⌗ ┆ Working on a new read me !
+⋮ ⌗ ┆ Ferrum / West .
+
+♯
+
+⋮ ⌗ ┆ About me .
+
+♯ 4teen ﹕ 
+
+♯ Artist ﹕ self-taught ﹕ working on getting lessons.
+
+♯ alexithymia ﹕ other mental health issues ﹕ ask.
 
 
+⋮ ⌗ ┆ Pony Town Info . 
 
+♯ Do not copy my skins ﹕ ask for inspo.
+
+♯ I block freely
 
 ⋮ ⌗ ┆ Mentions .
 
