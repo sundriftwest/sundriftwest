@@ -23,8 +23,8 @@ So many fishes in the sea so why can't one of them be mine ?."
 
 ⋮ ⌗ ┆ Important 
 
-♯ I will be offline social websites for a week or two, and I MIGHT get on PT if i'm able to, but don't expect anything.
+♯ I will be semi-offline social websites for a week or two, and I MIGHT get on PT if i'm able to, but don't expect anything.
 
-♯ I will still be editing my socials but I most likely be out of contact with people.
+♯ I will still be editing my socials but I most likely be out of contact with people. (But depending on the day and if I'm feeling fine, I may/may not answer. This is including for ata/gc.)
 
 
