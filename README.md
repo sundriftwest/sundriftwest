@@ -2,9 +2,8 @@
 
 ♯ 
 
-﹕ " I'm more likely to find a piano in the sky
-
-So many fishes in the sea so why can't one of them be mine ?."
+﹕ " Throw me to the wolves 
+               Punish me for your sins ."
 
 ♯
 
