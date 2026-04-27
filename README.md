@@ -1,11 +1,10 @@
 <p align="center"> ₊⊹🌻‧₊˚ ⋅ ⩩
 
 
-<p align="center"> " Will you end my Pain ?
+<p align="center"> " Take her name out of your mouth
+<p align="center">   You don't deserve to mourn. "
 
-<p align="center">  Will you take my Life ? "
-
-Broken - Lund 
+Come over (Again) - Crawlers
 
   
   
