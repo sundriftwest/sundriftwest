@@ -1,3 +1,4 @@
+<p align="center"> .
 <p align="center"> ₊⊹🌻‧₊˚ ⋅ ⩩
 <p align="center"> .
 
@@ -13,7 +14,7 @@
 <p align="center"> ₊⊹🌻‧₊˚ ⋅ ⩩
 <p align="center"> .
 
-
+<p align="center"> My name is Ceto or West
 
 
 
