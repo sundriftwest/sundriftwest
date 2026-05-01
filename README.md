@@ -1,5 +1,7 @@
+<p align="center"> Westdayz or Dangerdayz ?
+
 <p align="center"> .
-<p align="center"> ₊⊹⚔️‧₊˚ ⋅ ⩩
+<p align="center"> ₊⊹🔌‧₊˚ ⋅ ⩩
 <p align="center"> .
 
 <p align="center"> . Against the Kitchen Floor - Will Wood .
@@ -11,7 +13,7 @@
 
 
 <p align="center"> .  
-<p align="center"> ₊⊹⚔️‧₊˚ ⋅ ⩩
+<p align="center"> ₊⊹🔌‧₊˚ ⋅ ⩩
 <p align="center"> .
 
 <p align="center"> Call me Dayz or West
