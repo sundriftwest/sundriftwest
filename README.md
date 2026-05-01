@@ -14,9 +14,7 @@
 <p align="center"> ₊⊹⚔️‧₊˚ ⋅ ⩩
 <p align="center"> .
 
-<p align="center"> My name is Five-bit or West
+<p align="center"> Call me Dayz or West
 
-
-
-
+<p align="center"> Learning how to speak itlaian
 
