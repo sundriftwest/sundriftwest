@@ -1,5 +1,5 @@
 <p align="center"> .
-<p align="center"> ₊⊹🌻‧₊˚ ⋅ ⩩
+<p align="center"> ₊⊹⚔️‧₊˚ ⋅ ⩩
 <p align="center"> .
 
 <p align="center"> . Against the Kitchen Floor - Will Wood .
@@ -11,10 +11,10 @@
 
 
 <p align="center"> .  
-<p align="center"> ₊⊹🌻‧₊˚ ⋅ ⩩
+<p align="center"> ₊⊹⚔️‧₊˚ ⋅ ⩩
 <p align="center"> .
 
-<p align="center"> My name is Ceto or West
+<p align="center"> My name is Five-bit or West
 
 
 
