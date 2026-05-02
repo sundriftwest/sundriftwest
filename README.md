@@ -4,12 +4,13 @@
 <p align="center"> ₊⊹🔌‧₊˚ ⋅ ⩩
 <p align="center"> .
 
-<p align="center"> . Against the Kitchen Floor - Will Wood .
+<p align="center"> . Loose My Breath - Destiny's child .
 
 <p align="center">  .
 
-<p align="center"> " Oh, I'm sorry, I promise, I'm doing my best
-<p align="center">               I just haven't learned how to be human as you are yet "
+<p align="center"> " Can you keep up ?
+<p align="center">               Baby boy, make me loose my breath 
+<p align="center">   Bring the noise, make me lose my breath ."
 
 
 <p align="center"> .  
