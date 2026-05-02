@@ -23,3 +23,10 @@
 <p align="center"> Learning how to speak itlaian
 ‎
 <p align="center"> Car . Motorcyle enthuasist | I, of course am still learning .|
+
+<p align="center"> .  
+<p align="center"> ₊⊹🔌‧₊˚ ⋅ ⩩
+<p align="center"> .
+
+<p align="center"><img width="735" height="485" alt="ae8d4305dc9ea50c685f423ac1b06bf7" src="https://github.com/user-attachments/assets/ed6858b5-d6e5-4809-914d-d8e7c5358baa" />
+
