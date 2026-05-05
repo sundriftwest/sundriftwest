@@ -6,14 +6,14 @@
 <p align="center"> • ───────────────── •• ───────────────── •• ───────────────── •
 <p align="center"> .
 
-<p align="center"> . Loose My Breath - Destiny's child .
+<p align="center"> . KEEP UP - Odetari .
 
 <p align="center">  .
 
-<p align="left"> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ . " Can you keep up ?
-<p align="center"> . Baby boy, make me loose my breath 
-<p align="right"> . Bring the noise, make me lose my breath 
-<p align="left"> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎‎ ‎ ‎ ‎ ‎ ‎ . Hit me hard, make me loose my (hah, hah) ."
+<p align="left"> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ . " Keep up, I'm too fa-ast, I'm too fa-a-ast
+<p align="center"> . Push my foot up on that pedal, then I'm gone (g-g-gone, g-g-gone, gone) 
+<p align="right"> . Keep up on my track, on my track
+<p align="left"> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎‎ ‎ ‎ ‎ ‎ ‎ . Boy, I'll dust ya, keep my numbers goin' strong ."
 
 
 <p align="center"> .  
@@ -26,9 +26,9 @@
 
 <p align="center"> I really want more friends so dont be shy n be my friend,, pretty please with a motorcycle on top
 
-<p align="center"> Learning how to speak itlaian
+<p align="center"> Learning how to speak Itlaian
 ‎
-<p align="center"> Car . Motorcyle enthuasist | I, of course am still learning .|
+<p align="center"> Car . F1 . GP . Motorcycle enthusiast | I, of course am still learning about it all .|
 
 <p align="center"> .  
 <p align="center"> • ───────────────── •• ───────────────── •• ───────────────── •
