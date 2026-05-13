@@ -20,5 +20,5 @@
  ─────────────────  ───────────────── 
 
  <p align="center">
-<img src="https://readme-typing-svg.demolab.com?font=Inconsolata&weight=400&size=45&duration=4000&pause=100&color=FFFFFF&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1800&height=190&lines=Hello+my+name+is+Public+or+Fein+for+now+'till+I+find+a+good+name;fourteen+.+becoming+a+freshman+soon;I+am+a+self-taught+artist+.+I'm+also+teaching+myself+Italian" width="70%" />
+<img src="https://readme-typing-svg.demolab.com?font=Inconsolata&weight=400&size=45&duration=4000&pause=600&color=FFFFFF&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1800&height=190&lines=Hello+my+name+is+Public+or+Fein+for+now+'till+I+find+a+good+name;fourteen+.+becoming+a+freshman+soon;I+am+a+self-taught+artist+.+I'm+also+teaching+myself+Italian" width="70%" />
 <br><br>
